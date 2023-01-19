@@ -1,4 +1,4 @@
-### Hi there 👋 It's your oasis, and last things.
+### Hi there 👋 It's your oasis, and lost world.
 
 <!--
 **Gaslights/Gaslights** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
